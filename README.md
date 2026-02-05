@@ -1,4 +1,4 @@
-### Hi there, I am Sendya 👋 <img align="right" src="https://img.shields.io/badge/Follow-Sendya-green?style=flat" alt="Badge" loading="lazy" />
+### Hi there, I am Sendya (青井蓝莓) 👋 <img align="right" src="https://img.shields.io/badge/Follow-Sendya-green?style=flat" alt="Badge" loading="lazy" />
 
 ---
 
